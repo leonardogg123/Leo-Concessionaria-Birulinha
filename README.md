@@ -1,2 +1,0 @@
-# Leo-Concessionaria-Birulinha.
-Concessionárias especializadas em venda e serviços de manutenção. Fundado em novembro de 2020 por mim, a Concessionária Auto Shopping Leozito é líder em vendas do Sul do Brasil e conta com mais de 3.000 mil veículos, todos periciados, sempre com os melhores negócios para quem procura comprar ou trocar de carro.Estamos abertos todos os dias conforme está no site.Boa navegação e ótimos negócios.ATENÇÃO SITE FEITO POR ESTUDANTE !!!!NÃO TRABALHAMOS COM ISSO POR ENQUANTO!EXISTE VÁRIAS AUTO SHOPING ESSA FOI FEITA POR MIM NÃO EXISTE POR ENQUANTO.
